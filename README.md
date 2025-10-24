@@ -1,2 +1,2 @@
-# 24033311798Nama : Muhammad Rizieq
+Nama : Muhammad Rizieq
 NIM : 2403311798
